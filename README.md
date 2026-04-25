@@ -1,1 +1,0 @@
-# Optimizador-LP-DAVID-VLD
